@@ -10,6 +10,5 @@ demo project
 # sowjanya
 ## y19it022
 ### dadisowjanya09@gmail.com
-#### 9347913347
 ##### information technology
 ###### guntur
